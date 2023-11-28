@@ -1,2 +1,2 @@
 # dikonakyrie.github.io
-Kyrie Maxia Demagante
+Kyrie Maxia P. Demagante
