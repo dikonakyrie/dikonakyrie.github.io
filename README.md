@@ -1,3 +1,3 @@
 # dikonakyrie.github.io
 Kyrie Maxia Demagante
-## Seventeen
+## About Seventeen
